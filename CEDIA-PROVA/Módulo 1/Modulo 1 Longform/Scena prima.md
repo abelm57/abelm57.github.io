@@ -1,0 +1,1 @@
+Adesso mi pare che comincio a capire un po'.
